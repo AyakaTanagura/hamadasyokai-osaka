@@ -1,0 +1,1 @@
+# hamadasyokai-osaka
