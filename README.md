@@ -1,1 +1,1 @@
-# hamadasyokai-osaka
+# hamadasyokai-tokyo
